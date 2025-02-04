@@ -111,7 +111,7 @@ Contributions are welcome! If you find any bugs or have suggestions for improvem
 
 ## Contact
 
-For any questions or feedback, feel free to reach out to me at [your-email@example.com].
+For any questions or feedback, feel free to reach out to me at [lindokuhlehlatshwayo@gmail.com].
 
 ---
 
